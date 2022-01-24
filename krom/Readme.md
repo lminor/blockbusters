@@ -1,0 +1,1 @@
+#Krom Token Logo
